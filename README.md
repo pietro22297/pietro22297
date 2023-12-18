@@ -9,9 +9,7 @@
 🧠 I'm a Master Science student in Biomedical Engineering (curriculum Neuroscience) at AMS - University of Bologna since 2021 <br />
 
 ---
-📲 +393314259600 <br />
 📧 Personal: pietrioaloi97@gmail.com - Scholastic: pietro.aloi@studio.unibo.it <br />
 👤 Social network profiles: <br />
     - Facebook: https://www.facebook.com/pietro.aloi.3 <br />
     - Instagram: https://www.instagram.com/pie.aloi/ <br />
-    - Linkedin: https://www.linkedin.com/in/pietroaloi1997/ <br />
